@@ -15,7 +15,6 @@ Eu sou a Solange 😊
 
 
 
+<img src="https://media1.tenor.com/m/kxreel0tsaAAAAAC/harrypotter-chamberofsecrets.gif" alt="Harrypotter Chamberofsecrets GIF - Harrypotter Chamberofsecrets Dobby GIFs"/>![image](https://github.com/solange007/solange007/assets/170035761/0af8a59d-649f-4eaf-be1d-3fd9cb00fd12)
 
-Harrypotter Chamberofsecrets GIF - Harrypotter Chamberofsecrets Dobby GIFs
-● GIF SD
 
